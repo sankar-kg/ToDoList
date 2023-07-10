@@ -7,3 +7,6 @@
 - Watch Doraemon and Sinchan 
 - Have fun with pets 
 - Quality time with parents 
+- Play Guitar 
+- Watch Business Proposal 
+- Practice Meditation 
